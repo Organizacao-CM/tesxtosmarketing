@@ -19,3 +19,20 @@
 #### 4. Entre todos os dias no aplicativo 
 
 #### 5. Crie e compartilhe vídeos no app para ganhar ainda mais
+
+
+### PASSO A PASSO DE COMO USAR O KWAI:
+
+#### Baixe o app no link abaixo:
+## https://bit.ly/aplicativo-kwai
+
+#### 1. Faça login no app
+
+#### 2. Selecione “Kwai Gold” para entrar na página de atividade
+
+#### 3. E vincule o código promocional
+#### Código ➜ Kwai877092568
+
+#### 4. Assista vídeos para ganhar mais
+
+#### 5. Indique o Kwai também para seus amigos e ganhe ainda muito mais
