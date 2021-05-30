@@ -32,3 +32,31 @@ https://bit.ly/aplicativo-kwai
 #### 8. Entre todos os dias no aplicativo 
 
 #### 9. Crie e compartilhe vídeos no app para ganhar ainda mais
+
+
+
+
+____________________________________________________________________________________________________________________
+
+## STEP BY STEP HOW TO USE kwai, EARN money and still HAVE A LOT OF FUN with it:
+## A NOTE: It is very IMPORTANT that you complete all DAILY MISSIONS to EARN even more money in kwai
+
+## 1. Download the app from the link below and enter the app:
+https://bit.ly/aplicativo-kwai
+
+## 2. Select "Kwai Gold" to enter the activity page
+
+## 3. Link the promo code and start with a SPECIAL BONUS
+## Code: kwai877092568
+
+## 4. Watch videos to keep profiting on kwai
+
+## 5. Invite family and friends with your invitation code that you will have in kwai
+
+## 6. Enter every day in the app
+
+## 7. Create and share in-app videos to earn even more
+
+## Kwai is a social network different from many other social networks, i.e. it is considered the easiest and fastest social network to make money because it does not require a certain number of followers to monetize your content on kwai, it is total free and allows all its users to have fun on it by watching videos, creating and sharing videos , inviting friends and still be able to profit from it. Take advantage and run while there is still this OPPORTUNITY, because it may end
+
+
