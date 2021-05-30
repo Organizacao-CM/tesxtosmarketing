@@ -5,7 +5,7 @@
 #### Use o código promocional e já começe com um BONUS ESPECIAL: 
 #### Código Promocional: Kwai877092568
 
-#### O kwai é diferente de muitas outras redes sociais, ou seja, é considerada a rede social mais fácil e rápida de ganhar dinheiro pois não exige um certo número de seguidores para monetizar o seu conteúdo no kwai, ele é total gratuito e permite que todos os seus usuários possam se divertir nele vendo vídeos, criando e compartilhando vídeos, convidando os amigos e ainda poder lucrar com isto. 
+#### O kwai é diferente de muitas outras redes sociais, ou seja, é considerada a rede social mais fácil e rápida de ganhar dinheiro pois não exige um certo número de seguidores para monetizar o seu conteúdo no kwai,ele é total gratuito e permite que todos os seus usuários possam se divertir nele vendo vídeos, criando e compartilhando vídeos, convidando os amigos e ainda poder lucrar com isto. 
 #### Aproveita e corre enquanto ainda há esta OPORTUNIDADE, pois ela pode acabar
 
 
