@@ -9,19 +9,7 @@
 #### Aproveita e corre enquanto ainda há esta OPORTUNIDADE, pois ela pode acabar
 
 
-### PASSO A PASSO DE COMO USAR O KWAI:
-#### 1. Use o código promocional, este: Kwai877092568 e já começe com um dinheiro no kwai
-
-#### 2. Assista vídeos para continuar lucrando no kwai
-
-#### 3. Convide familiares e amigos com seu código de convite que você terá no kwai
-
-#### 4. Entre todos os dias no aplicativo 
-
-#### 5. Crie e compartilhe vídeos no app para ganhar ainda mais
-
-
-### PASSO A PASSO DE COMO USAR O KWAI:
+### PASSO A PASSO DE COMO USAR O KWAI E CONTINUAR GANHANDO:
 
 #### Baixe o app no link abaixo:
 ## https://bit.ly/aplicativo-kwai
@@ -30,8 +18,14 @@
 
 #### 2. Selecione “Kwai Gold” para entrar na página de atividade
 
-#### 3. E vincule o código promocional: Kwai877092568
+#### 3. E vincule o código promocional,➜Código: Kwai877092568
 
-#### 4. Assista vídeos para ganhar mais
+#### 4. Assista vídeos para continuar lucrando no kwai
+
+#### 5. Convide familiares e amigos com seu código de convite que você terá no kwai
 
 #### 5. Indique o Kwai também para seus amigos e ganhe ainda muito mais
+
+#### 6. Entre todos os dias no aplicativo 
+
+#### 7. Crie e compartilhe vídeos no app para ganhar ainda mais
