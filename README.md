@@ -31,7 +31,7 @@
 #### 2. Selecione “Kwai Gold” para entrar na página de atividade
 
 #### 3. E vincule o código promocional
-#### Código ➜ Kwai877092568
+#### Código: Kwai877092568
 
 #### 4. Assista vídeos para ganhar mais
 
