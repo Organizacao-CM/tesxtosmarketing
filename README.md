@@ -1,6 +1,6 @@
 
 ### VEJA ABAIXO COMO É SIMPLES COMEÇAR JÁ LUCRANDO NO KWAI  E AINDA SE DIVERTIR COM ISSO:
-# UMA OBSERVAÇÃO: É muito IMPORTANTE que você complete todas as MISSÕES DIÁRIAS para GANHAR ainda mais dinheiro no kwai
+## UMA OBSERVAÇÃO: É muito IMPORTANTE que você complete todas as MISSÕES DIÁRIAS para GANHAR ainda mais dinheiro no kwai
 
 Use o código promocional e já começe com um BONUS ESPECIAL: 
 Código Promocional: Kwai877092568
