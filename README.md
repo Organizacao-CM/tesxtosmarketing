@@ -10,7 +10,7 @@ ele é total gratuito e permite que todos os seus usuários possam se divertir n
 Aproveita e corre enquanto ainda há esta OPORTUNIDADE, pois ela pode acabar
 
 
-PASSO A PASSO DE COMO USAR O KWAI:
+### PASSO A PASSO DE COMO USAR O KWAI:
 1. Use o código promocional, este: Kwai877092568 e já começe com um dinheiro no kwai
 
 2. Assista vídeos para continuar lucrando no kwai
