@@ -11,12 +11,12 @@
 
 
 ### PASSO A PASSO DE COMO USAR O KWAI:
-1. Use o código promocional, este: Kwai877092568 e já começe com um dinheiro no kwai
+#### 1. Use o código promocional, este: Kwai877092568 e já começe com um dinheiro no kwai
 
-2. Assista vídeos para continuar lucrando no kwai
+#### 2. Assista vídeos para continuar lucrando no kwai
 
-3. Convide familiares e amigos com seu código de convite que você terá no kwai
+#### 3. Convide familiares e amigos com seu código de convite que você terá no kwai
 
-4. Entre todos os dias no aplicativo 
+#### 4. Entre todos os dias no aplicativo 
 
-5. Crie e compartilhe vídeos no app para ganhar ainda mais
+#### 5. Crie e compartilhe vídeos no app para ganhar ainda mais
